@@ -8,14 +8,18 @@
 
 ## 🎯 COPY FINAL
 
-🎵 → 💼 Aos 34 anos, descobri uma verdade brutal...
+🎵 → 💼 Aos 49 anos, voltando de um ensaio...
 
-8 anos invisível nos bastidores do Marcos Suzano.  
-Talento reconhecido mundialmente. Eu? Sombra.
+Vi um músico famoso (tocou com todos os grandes do Brasil) sentado na praça da minha cidade.  
+Apostando baralho com os lavadores de carro.
 
-Hoje resolvo problemas de R$ 10K+ com IA.  
-Não porque virei "guru".  
-Porque parei de me esconder atrás do meu talento.
+Um choque.  
+
+"Esse cara famoso está chegando aos 60 assim...  
+E eu, que não sou brilhante, vou chegar como?"
+
+Naquele momento, aos 49, comecei a estudar marketing.  
+Hoje, aos 58, resolvo problemas de R$ 10K+ com IA para infoprodutores.
 
 📖 Próximos 90 dias: vou documentar TUDO.  
 Da primeira venda até o primeiro R$ 100K.
@@ -23,21 +27,23 @@ Da primeira venda até o primeiro R$ 100K.
 Transparência total. Erros inclusos.  
 Sistema disponível: github.com/Rota50ia/instagram-autoridade-edilson-IA
 
-🤔 Quantos talentos estão escondidos no seu negócio?
+🤔 Você já teve seu "momento da praça"?  
+Aquele despertar que muda tudo aos 49+ anos?
 
-#MúsicoEmpreendedor #TransformaçãoReal #ConvertIQ
+#DespertarTardio #MúsicoEmpreendedor #TransformaçãoReal #ConvertIQ
 
 ---
 
 ## 🧠 ANÁLISE NEURAL (Dr. Neurocopy)
 
-**GATILHOS ATIVADOS:**
-- **Pattern Interrupt:** "verdade brutal" + idade específica  
-- **Autoridade Social:** Marcos Suzano (credibilidade externa)  
-- **Contraste Quantificado:** invisível → R$ 10K+ (transformação mensurável)  
-- **Reciprocidade:** vulnerabilidade + transparência extrema  
-- **Curiosity Gap:** "vou documentar TUDO" (promessa de transparência)  
-- **Social Proof Técnico:** GitHub repo (profissionalismo diferenciado)  
+**GATILHOS MÁXIMOS ATIVADOS:**
+- **Mortality Salience:** Despertar aos 49 = consciência da passagem do tempo  
+- **Visual Shock:** Músico famoso apostando na praça (imagem visceral)  
+- **Fear of Future:** "Vou chegar aos 60 assim?" (terror existencial universal)  
+- **Heroic Journey:** Momento de despertar específico + transformação  
+- **Age Relevance:** Target 49+ se identifica profundamente  
+- **Humildade:** "Não sou brilhante" = relatabilidade máxima  
+- **Redemption Arc:** 49-58 = 9 anos de transformação comprovada  
 
 **NEUROCHEMICALS TRIGGERED:**
 - **Dopamina:** Curiosidade sobre os próximos 90 dias  
