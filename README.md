@@ -16,7 +16,7 @@
 
 **META PRIMÁRIA:** Construir autoridade suficiente para consultoria R$ 10K+  
 **META SECUNDÁRIA:** 1000+ vendas Kit DISC Conversão (R$ 497)  
-**META TERCIÁRIA:** Provar que músicos podem dominar IA + negócios  
+**META TERCIÁRIA:** Provar que background musical + IA = vantagem única para INFOPRODUTORES  
 
 ---
 
@@ -58,7 +58,7 @@
 **TRANSPARÊNCIA RADICAL:** Todo processo documentado neste repo  
 **SISTEMA vs INSPIRAÇÃO:** Método replicável, não magia  
 **NEURAL + EMOCIONAL:** Ciência + storytelling  
-**MÚSICO + IA:** Combinação inédita no mercado brasileiro  
+**MÚSICO + IA:** Diferencial único para servir TODOS os infoprodutores  
 
 ---
 

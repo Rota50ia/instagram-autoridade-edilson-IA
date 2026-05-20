@@ -206,7 +206,7 @@ github.com/Rota50ia/instagram-autoridade-edilson-IA
 #TransformaçãoReal #SistematizeSuccess #NeuralSelling  
 
 **Nicho:**
-#MúsicoQueVende #AutoridadeIA #BastinoProtagonistasdores  
+#InfoprodutorQueVende #AutoridadeIA #ConversãoSistemática  
 
 ---
 

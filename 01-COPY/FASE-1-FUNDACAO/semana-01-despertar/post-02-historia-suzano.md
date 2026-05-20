@@ -35,7 +35,7 @@ Mas porque finalmente entendi:
 
 🔥 Próximo post: Como a primeira venda de R$ 10K mudou minha perspectiva para sempre.
 
-#BastidoresDoSucesso #MarcosSuzano #IAParaMúsicos
+#BastidoresDoSucesso #MarcosSuzano #IAParaInfoprodutores
 
 ---
 

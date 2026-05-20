@@ -1,7 +1,7 @@
 # 📅 CRONOGRAMA 90 DIAS - OPERAÇÃO AUTORIDADE
 
 **Período:** 20/05/2026 a 20/08/2026  
-**Objetivo:** Músico invisível → Autoridade IA R$ 10K+  
+**Objetivo:** Músico invisível → Autoridade IA para INFOPRODUTORES R$ 10K+  
 **Metodologia:** Transparência radical + sistema AIOS  
 
 ---
