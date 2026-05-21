@@ -8,27 +8,23 @@
 
 ## 🎯 COPY FINAL
 
-🥁 2016: "Edilson, você vai cuidar de tudo."
+🥁 2018: "Edilson, você vai cuidar de tudo."
 
-Marcos Suzano, maior percussionista do Brasil.  
-Grammy Latino. Reconhecido mundialmente.  
-E eu? Recém-formado, sem experiência.
+Marcos Suzano, maior percussionista do Brasil. Grammy Latino em várias gravações. Reconhecido mundialmente. 
+E eu? Começando a estudar Marketing e Psicologia por trás das vendas, sem experiência.
 
-8 anos depois:
-✅ 3 cursos lançados  
-✅ Milhares de alunos  
-✅ Sistema de vendas completo  
-✅ Do zero ao expertise em marketing musical  
+8 anos depois: 
 
-Mas sempre nos BASTIDORES.  
-Sempre o "cara da tecnologia".  
-Nunca o protagonista.
+✅ +12 cursos lançados ✅ Milhares de alunos ✅ Sistema de vendas completo ✅ Do zero ao expertise em marketing musical
 
-💡 Em 2024, descobri IA.  
+Mas sempre nos BASTIDORES. 
+Sempre o "cara da tecnologia". Nunca o protagonista.
+
+💡 Em 2024, descobri IA. 
 E tudo mudou.
 
-Não porque a tecnologia era incrível.  
-Mas porque finalmente entendi:  
+Não porque a tecnologia é incrível. 
+Mas porque finalmente entendi:
 
 **Eu não precisava mais me esconder atrás do talento dos outros.**  
 **Eu tinha desenvolvido o MEU próprio talento.**
